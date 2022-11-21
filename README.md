@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MusharaffCyber
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...Hacking
 - 🌱 I’m currently learning ...Cyber
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...Cyber Hacking 
 - 📫 How to reach me ...mubarakmusharaff5@gmail.com 
 
 <!---
